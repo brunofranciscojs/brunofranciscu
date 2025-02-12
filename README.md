@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **bruno.f.c@icloud.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/bruno-francisco-/](linkedin.com/in/bruno-francisco-)
+- 📄 Know about my experiences [linkedin.com/in/bruno-francisco-](https://linkedin.com/in/bruno-francisco-)
 
 - ⚡ Fun fact **third eye of truth**
 
